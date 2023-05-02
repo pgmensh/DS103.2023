@@ -3,4 +3,4 @@
 
 
 #### If you're also sudent of this program too, nice to meet you!
-### My school login is *roxietwi*, I'm from *Mercury* tribe (DS 103, 17/04 - 08/08), you can message me at 🚀
+### My school login is *roxietwi*, I'm from *Mercury* tribe (DS 103, 17/04 - 08/08). You can message me at 🚀
